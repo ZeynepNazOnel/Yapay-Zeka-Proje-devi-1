@@ -1,1 +1,1 @@
-# Yapay-Zeka-Proje-devi-1
+# Yapay-Zeka-Proje-Odevi-1
